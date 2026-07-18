@@ -6,7 +6,7 @@ heavily wip
   <i>“The loneliest feeling is realizing you stopped telling people how you really feel.”</i>
 </p>
 
-<img width="540" height="304" alt="Image" src="https://github.com/user-attachments/assets/72c8860e-25a4-4e1b-8738-b5bb6a12a16e" />
+<img width="498" height="281" alt="Image" src="https://github.com/user-attachments/assets/ea5de4f2-e4aa-4f5e-bbc5-d1fbfeaeadd5" />
 
 ✧･ﾟ: *✧･ﾟ:*
 <p align="left">
