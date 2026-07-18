@@ -51,7 +51,7 @@ i dont really have a long list of things i hate; im generally pretty chill. the 
 
 ## my friends:))
 
-<img width="300" height="335" alt="Image" src="https://github.com/user-attachments/assets/f59dff3c-ce17-4e6f-97aa-be8cd85715da" />
+<img width="540" height="335" alt="Image" src="https://github.com/user-attachments/assets/f59dff3c-ce17-4e6f-97aa-be8cd85715da" />
 
 if youre in my inner circle, you already know that my sarcasm is just my way of showing im comfortable with you. even though im blunt and joke around 24/7, im incredibly protective and caring toward the people i vibe with. i love creating memories with my friends, whether were bullying eachother as bondings or just talking about life/interests, im big on gift-giving and being the person people can rely on when things get real, please open up to me whenever yall are feeling down.
 
