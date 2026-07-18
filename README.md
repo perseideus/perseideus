@@ -41,6 +41,7 @@ i also enjoy looking out for my friends. whether its picking up the tab, buying 
 expect a lot of sarcasm. i dont really sugarcoat things and im usually joking even when i sound serious. if you can handle the banter and don't get offended easily, i like dat🤩 we'll get along fine.
 
 im also a big fan of tarantulas and actually have one as a pet. i find them super interesting to watch and keep, so im always down to talk about exotic pets or arachnids. dont be scared of em, they rarely bite and only do whenever they feel threatened😅
+
 <img width="736" height="198" alt="Image" src="https://github.com/user-attachments/assets/51a095fe-4fac-4c41-bd39-94cd5218aea1" />
 
 ## dislikes
@@ -50,7 +51,7 @@ i dont really have a long list of things i hate; im generally pretty chill. the 
 
 ## my friends:))
 
-<img width="200" height="142" alt="Image" src="https://github.com/user-attachments/assets/ad217b12-ea4c-4390-80d4-b057269a7c51" />
+<img width="300" height="335" alt="Image" src="https://github.com/user-attachments/assets/f59dff3c-ce17-4e6f-97aa-be8cd85715da" />
 
 if youre in my inner circle, you already know that my sarcasm is just my way of showing im comfortable with you. even though im blunt and joke around 24/7, im incredibly protective and caring toward the people i vibe with. i love creating memories with my friends, whether were bullying eachother as bondings or just talking about life/interests, im big on gift-giving and being the person people can rely on when things get real, please open up to me whenever yall are feeling down.
 
