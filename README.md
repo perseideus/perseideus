@@ -10,7 +10,7 @@ heavily wip
 
 ✧･ﾟ: *✧･ﾟ:*
 <p align="left">
-  • welcome to my github! i relate to denji because of some specific reasons and mostly use him in pt😅😅 lowk me irl though i sometimes use gojo, my oc or choso hehe, also if youre one of my friends that i barely talk to -- please int w/ me anytime haha! im mostly awkward and often quiet if u aint a cf..
+  • welcome to my github! gojo & denji kin😅😅 lowk me irl though also if youre one of my friends that i barely talk to -- please int w/ me anytime haha! im mostly awkward and often quiet if u aint a cf..
 </p>
 † ———————— †
 <p align="left">
