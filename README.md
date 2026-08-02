@@ -7,3 +7,5 @@ $${\textsf{\color{#DEEBF7}𝐭𝐡𝐫𝐨𝐮𝐠𝐡𝐨𝐮𝐭 𝐡𝐞𝐚�
 $${\textsf{\color{#4292C6}𝐢 𝐚𝐥𝐨𝐧𝐞 𝐚𝐦 𝐭𝐡𝐞 𝐡𝐨𝐧𝐨𝐫𝐞𝐝 𝐨𝐧𝐞.}}$$
 
 $${\textsf{\color{#2171B5}⋆⊱༻𖥸༺⊰⋆}}$$
+
+<img width="736" height="707" alt="Image" src="https://github.com/user-attachments/assets/0aa5d70b-09f5-4dc9-9f7a-543931a62bd9" />
