@@ -8,4 +8,4 @@ $${\textsf{\color{#4292C6}𝐢 𝐚𝐥𝐨𝐧𝐞 𝐚𝐦 𝐭𝐡𝐞 𝐡�
 
 $${\textsf{\color{#2171B5}⋆⊱༻𖥸༺⊰⋆}}$$
 
-<img width="736" height="707" alt="Image" src="https://github.com/user-attachments/assets/0aa5d70b-09f5-4dc9-9f7a-543931a62bd9" />
+<img width="736" height="707" alt="Image" src="https://github.com/user-attachments/assets/be10076c-f603-4a93-a44b-c1b269e662e1" />
